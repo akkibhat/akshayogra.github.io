@@ -1,2 +1,0 @@
-akshayogra.github.io
-====================
